@@ -1,7 +1,5 @@
-# わたしきっとおとなフォビア
-<img width="360" height="300" alt="image" src="https://github.com/user-attachments/assets/102bd42a-7f20-4e34-875e-e8fa1b907804" />
-
-## If you see me ever on ponytown, interact with extreme caution unless you're one of my friends. Even then, interact with a little care or caution.
+# "For if death cannot be avoided..." So says the girl, "I wish it could contain beauty more plentiful."
+<img width="904" height="1260" alt="image" src="https://github.com/user-attachments/assets/72763160-c72f-40ed-a3ec-242d650f030e" />
 
 
 
