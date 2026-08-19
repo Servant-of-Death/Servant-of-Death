@@ -1,5 +1,18 @@
-# ${\color{#d4aff2}"For}$ ${\color{#d4aff2}if}$ ${\color{#d4aff2}death}$ ${\color{#d4aff2}cannot}$ ${\color{#d4aff2}be}$ ${\color{#d4aff2}avoided..."}$ ${\color{#e9b9f0}So}$ ${\color{#e9b9f0}says}$ ${\color{#e9b9f0}the}$ ${\color{#e9b9f0}girl,}$ ${\color{#d4aff2}"I}$ ${\color{#d4aff2}wish}$ ${\color{#d4aff2}it}$ ${\color{#d4aff2}could}$ ${\color{#d4aff2}contain}$ ${\color{#d4aff2}beauty}$ ${\color{#d4aff2}more}$ ${\color{#d4aff2}plentiful."}$
-<img width="904" height="1260" alt="image" src="https://github.com/user-attachments/assets/72763160-c72f-40ed-a3ec-242d650f030e" />
+# $\color{#d4aff2}\textsf{"For if death cannot be avoided..."}$ $\color{#edccff}\textsf{So says the girl,}$ $\color{#d4aff2}\textsf{"I wish it could contain beauty more plentiful."}$
+
+<img width="648" height="72" alt="image" src="https://github.com/user-attachments/assets/ad1fa199-3ecf-4d9c-bf45-b6878cb078ed" />
+
+$\color{#d4aff2}\textsf{Castorice}$ / $\color{#1075c2}\textsf{Cerydra}$ / $\color{#898c8f}\textsf{Silver Wolf}$ / $\color{#43a9e0}\textsf{Vodyanitsa}$
+- $\color{#d4aff2}\textsf{↑ Also collectively go by Eris}$
+
+$\color{#edccff}\textsf{She/her primarily, but he/him + they/them work}$
+
+$\color{#d4aff2}\textsf{I'm 19 y/o, most minors iwc, I likely won't befriend or talk to you much}$
+
+$\color{#edccff}\textsf{IWCUF at most/all times ! Feel free to C+H, just don't expect any replies.}$
+
+$\color{#d4aff2}\textsf{Fandoms include: Genshin, HSR, ZZZ, Fragaria Memories, Strange Eden, ENStars, Umamusume, PJSK, TWST}$
+<img width="310" height="310" alt="image" src="https://github.com/user-attachments/assets/cc63f53b-7c7b-410d-9a00-ff8a27ddfa77" />
 
 
-
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/884ef256-4d93-4f81-8245-597fe75214d0" />
