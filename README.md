@@ -7,7 +7,8 @@ $\color{#d4aff2}\textsf{Castorice}$ / $\color{#1075c2}\textsf{Cerydra}$ / $\colo
 
 $\color{#edccff}\textsf{She/her primarily, but he/him + they/them work}$
 
-$\color{#d4aff2}\textsf{I'm 19 y/o, most minors iwc, I likely won't befriend or talk to you much ("youre an adult!! why are you in the safe server!!!" i got flagged as under 18 and don't care enough to email for a change + i dont like 18+ topics unless its jokes with my friends!! safe server is for EVERYONE, not just children}$
+$\color{#d4aff2}\textsf{I'm 19 y/o, most minors iwc, I likely won't befriend or talk to you much}$
+$\color{#d4aff2}\textsf{"youre an adult!! why are you in the safe server!!!" i got flagged as under 18 and don't care enough to email for a change + i dont like 18+ topics!!}$
 
 $\color{#edccff}\textsf{IWCUF at most/all times ! Feel free to C+H, just don't expect any replies.}$
 
