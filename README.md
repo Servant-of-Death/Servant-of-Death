@@ -2,7 +2,7 @@
 
 <img width="648" height="72" alt="image" src="https://github.com/user-attachments/assets/ad1fa199-3ecf-4d9c-bf45-b6878cb078ed" />
 
-$\color{#d4aff2}\textsf{Castorice}$ / $\color{#1075c2}\textsf{Cerydra}$ / $\color{#898c8f}\textsf{Silver Wolf}$ / $\color{#43a9e0}\textsf{Vodyanitsa}$
+$\color{#d4aff2}\textsf{Castorice}$ / $\color{#1075c2}\textsf{Cerydra}$ / $\color{#898c8f}\textsf{Silver Wolf}$
 - $\color{#d4aff2}\textsf{↑ Also collectively go by Eris}$
 
 $\color{#edccff}\textsf{She/her primarily, but he/him + they/them work}$
