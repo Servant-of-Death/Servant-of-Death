@@ -14,7 +14,7 @@ $\color{#d4aff2}\textsf{IWCUF at most/all times ! Feel free to C+H, just don't e
 
 $\color{#edccff}\textsf{Fandoms include: Genshin, HSR, ZZZ, Fragaria Memories, Strange Eden, ENStars, Umamusume, PJSK, TWST}$
 
-$\color{#d4aff2}\textsf{I do not support proshipping. I may be anti-harassment, but that does not mean I support it!!!!}$ $\color{#edccff}\textsf{Anyone who ships Idia/Ortho, Sunday/Robin, Jade/Floyd and Gourdy/Toodles and any adult is genuinely so weird}$
+$\color{#d4aff2}\textsf{I do not support proshipping. I may be anti-harassment, but that does not mean I support it!!!!}$ $\color{#edccff}\textsf{Anyone who ships Idia/Ortho, Sunday/Robin, Jade/Floyd and Gourdy/Toodles and any adult is genuinely so weird}$ $\color{#d4aff2}\textsf{Also to add on, if you yume with like Ortho/Gourdy/Toodles you need help, please get it!!!}$
 
 <img width="310" height="310" alt="image" src="https://github.com/user-attachments/assets/cc63f53b-7c7b-410d-9a00-ff8a27ddfa77" />
 
