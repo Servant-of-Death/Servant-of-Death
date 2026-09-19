@@ -1,5 +1,7 @@
 
-# $\color{#d4aff2}\textsf{Remaking !!}$
+# $\color{#d4aff2}\textsf{If you've seen me around, you've likely seen me as Erissie or gargoyle adoration !}$
+
+##  $\color{#d4aff2}\textsf{Feel free to C+H, just be a little careful talking with me because I am sensitive !!}$
 
 <img width="350" height="19" alt="tumblr_9b9c4fc56febb90550021a2796b987b3_fef44f4c_400" src="https://github.com/user-attachments/assets/fb047dc5-9729-4ba0-8389-ba4649f48987" />
 <img width="350" height="19" alt="tumblr_778751e5e8c2cbdb41148f59939f5700_ec44fca4_400" src="https://github.com/user-attachments/assets/62106fcd-e498-4b56-a0b4-c28b4faaf865" />
