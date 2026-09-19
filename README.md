@@ -1,5 +1,5 @@
 
-# $\color{#d4aff2}\textsf{If you've seen me around, you've likely seen me as Erissie or gargoyle adoration !}$
+# $\color{#d4aff2}\textsf{If you've seen me around, you've likely seen me as Erissie or gargoyle adoration}$ $\color{#d4aff2}\textsf{adoration!}$
 
 ##  $\color{#d4aff2}\textsf{Feel free to C+H, just be a little careful talking with me because I am sensitive !!}$
 
