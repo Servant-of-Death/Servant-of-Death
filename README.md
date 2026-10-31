@@ -14,3 +14,5 @@ $\color{#d4aff2}\textsf{Any pronouns, but mainly she/her}$
 $\color{#d4aff2}\textsf{Iwc! I'm not a mean person, but I am mentally unstable!!}$ $\color{#d4aff2}\textsf{Please be aware you may be befriending someone with mental illnesses.}$
 
 $\color{#d4aff2}\textsf{Despite my Riddle github being used, you'll primarily be seeing me!}$ $\color{#d4aff2}\textsf{I don't mind still being called Riddle, though!!}$
+
+<img width="2048" height="55" alt="image" src="https://github.com/user-attachments/assets/c5946ffb-5fc5-4136-a2ac-5a9e26ebc4ce" />
