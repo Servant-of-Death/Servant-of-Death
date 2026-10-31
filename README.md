@@ -1,11 +1,16 @@
-# $\color{#d4aff2}\textsf{— Life and death are but a journey. When butterfly alights on the branch, what withers will bloom anew.}$
+<img width="2048" height="55" alt="image" src="https://github.com/user-attachments/assets/c5946ffb-5fc5-4136-a2ac-5a9e26ebc4ce" />
+
+
+# $\color{#d4aff2}\textsf{— Life and death are but a journey. When butterfly alights on the branch,}$ $\color{#d4aff2}\textsf{what withers will bloom anew.}$
+
+<img width="330" height="460" alt="image" src="https://github.com/user-attachments/assets/f1dd622d-d2ad-4ac1-8422-9fdc4d56b202" />
+
 ## $\color{#d4aff2}\textsf{Previously known as Erissie!}$
 
-##  $\color{#d4aff2}\textsf{Feel free to C+H, just be a little careful talking with me because I am sensitive !!}$
+$\color{#d4aff2}\textsf{Castorice/Eris}$
 
-<img width="350" height="19" alt="tumblr_9b9c4fc56febb90550021a2796b987b3_fef44f4c_400" src="https://github.com/user-attachments/assets/fb047dc5-9729-4ba0-8389-ba4649f48987" />
-<img width="350" height="19" alt="tumblr_778751e5e8c2cbdb41148f59939f5700_ec44fca4_400" src="https://github.com/user-attachments/assets/62106fcd-e498-4b56-a0b4-c28b4faaf865" />
-<img width="350" height="19" alt="tumblr_af75bfca0506bec3614c2b88171201f3_42423a10_400" src="https://github.com/user-attachments/assets/c806c8bc-6c76-4b48-8c96-33374ba668aa" />
-<img width="150" height="20" alt="tumblr_7b42e5a4784299e5a414615b2211bcc5_5f067dcd_250" src="https://github.com/user-attachments/assets/31b1c3b7-7d0a-40d2-9e26-8f6eaf511180" />
-<img width="150" height="20" alt="anaxa" src="https://github.com/user-attachments/assets/4ba8e82f-dcc7-4668-86ab-9679094485a0" />
-<img width="150" height="20" alt="cerydra" src="https://github.com/user-attachments/assets/6ca4c21e-6602-411a-8a6e-af7ab6d2d98d" />
+$\color{#d4aff2}\textsf{Any pronouns, but mainly she/her}$
+
+$\color{#d4aff2}\textsf{Iwc! I'm not a mean person, but I am mentally unstable!!}$ $\color{#d4aff2}\textsf{Please be aware you may be befriending someone with mental illnesses.}$
+
+$\color{#d4aff2}\textsf{Despite my Riddle github being used, you'll primarily be seeing me!}$ $\color{#d4aff2}\textsf{I don't mind still being called Riddle, though!!}$
