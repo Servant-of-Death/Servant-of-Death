@@ -17,4 +17,6 @@ $\color{#d4aff2}\textsf{Iwc! I'm not a mean person, but I am mentally unstable!!
 
 $\color{#d4aff2}\textsf{Despite my Riddle github being used, you'll primarily be seeing me!}$ $\color{#d4aff2}\textsf{I don't mind still being called Riddle, though!!}$
 
-<img width="2048" height="55" alt="image" src="https://github.com/user-attachments/assets/c5946ffb-5fc5-4136-a2ac-5a9e26ebc4ce" />
+<img width="403" height="46" alt="image" src="https://github.com/user-attachments/assets/4ae8d5ce-f91d-49f0-983d-875201a6ccbe" />
+<img width="403" height="46" alt="image" src="https://github.com/user-attachments/assets/f4023bca-1ceb-4b9f-843d-4ff244494f41" />
+
