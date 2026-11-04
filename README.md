@@ -17,6 +17,8 @@ $\color{#d4aff2}\textsf{Iwc! I'm not a mean person, but I am mentally unstable!!
 
 $\color{#d4aff2}\textsf{Despite my Riddle github being used, you'll primarily be seeing me!}$ $\color{#d4aff2}\textsf{I don't mind still being called Riddle, though!!}$
 
+$\color{#d4aff2}\textsf{Sometimes dissociating, interact with care ^_^ I may not respond to people I'm not friends with because of it. I'm not always talkative </3}$
+
 <img width="403" height="46" alt="image" src="https://github.com/user-attachments/assets/4ae8d5ce-f91d-49f0-983d-875201a6ccbe" />
 <img width="403" height="46" alt="image" src="https://github.com/user-attachments/assets/f4023bca-1ceb-4b9f-843d-4ff244494f41" />
 
