@@ -13,11 +13,11 @@ $\color{#d4aff2}\textsf{Castorice/Eris}$
 
 $\color{#d4aff2}\textsf{Any pronouns, but mainly she/her}$
 
-$\color{#d4aff2}\textsf{Iwc! I'm not a mean person, but I am mentally unstable!!}$ $\color{#d4aff2}\textsf{Please be aware you may be befriending someone with mental illnesses.}$
+$\color{#d4aff2}\textsf{Mentally unstable/ill, might be dissociating, iwcare always !! W2i C+H always}$
 
-$\color{#d4aff2}\textsf{Despite my Riddle github being used, you'll primarily be seeing me!}$ $\color{#d4aff2}\textsf{I don't mind still being called Riddle, though!!}$
+$\color{#d4aff2}\textsf{TWST area most likely, if not I'm with friends/party}$
 
-$\color{#d4aff2}\textsf{Sometimes dissociating, interact with care ! I may not respond to people I'm not friends with because of it. I'm not always talkative </3}$
+$\color{#d4aff2}\textsf{Suspecting dissociative disorder}$
 
 <img width="403" height="46" alt="image" src="https://github.com/user-attachments/assets/4ae8d5ce-f91d-49f0-983d-875201a6ccbe" />
 <img width="403" height="46" alt="image" src="https://github.com/user-attachments/assets/f4023bca-1ceb-4b9f-843d-4ff244494f41" />
