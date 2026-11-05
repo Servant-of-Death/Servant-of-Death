@@ -13,6 +13,8 @@ $\color{#d4aff2}\textsf{Castorice/Eris}$
 
 $\color{#d4aff2}\textsf{Any pronouns, but mainly she/her}$
 
+$\color{#d4aff2}\textsf{I'm 20 bodily!}$
+
 $\color{#d4aff2}\textsf{Mentally unstable/ill, might be dissociating, iwcare always !! W2i C+H always}$
 
 $\color{#d4aff2}\textsf{TWST area most likely, if not I'm with friends/party}$
