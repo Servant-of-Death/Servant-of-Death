@@ -17,7 +17,7 @@ $\color{#d4aff2}\textsf{Mentally unstable/ill, might be dissociating, iwcare alw
 
 $\color{#d4aff2}\textsf{TWST area most likely, if not I'm with friends/party}$
 
-$\color{#d4aff2}\textsf{Suspecting dissociative disorder}$
+$\color{#d4aff2}\textsf{Suspecting dissociative disorder, I'm not an IRL ! I just resonate with Castorice a lot.}$
 
 <img width="403" height="46" alt="image" src="https://github.com/user-attachments/assets/4ae8d5ce-f91d-49f0-983d-875201a6ccbe" />
 <img width="403" height="46" alt="image" src="https://github.com/user-attachments/assets/f4023bca-1ceb-4b9f-843d-4ff244494f41" />
